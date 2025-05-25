@@ -1,1 +1,1 @@
-# workshop2025
+https://fm4hs.github.io/2025
